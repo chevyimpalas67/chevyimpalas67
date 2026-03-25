@@ -11,4 +11,4 @@
 
 [rentry](https://rentry.co/chevyimpalas67) x [prns.cc](https://pronouns.cc/@chevyimpalas67) x [atabook](https://deanwinchester.atabook.org/) x [guns.lol](https://guns.lol/chevyimpalas67)
 
-OSDD sys. iwcare always !
+highly suspected OSDD sys. iwcare always !
