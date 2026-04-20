@@ -5,7 +5,8 @@
 ![](https://komarev.com/ghpvc/?username=chevyimpalas67&color=000000&label=★&style=plastic)  ![](https://files.catbox.moe/8djxwl.gif)
 <br />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&pause=1000&color=FDF1B7&background=F276B718&center=true&vCenter=true&width=435&lines=%22+That's+pretty+nice+timing+%2C+Cas+.+%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=4D4D4D&center=true&vCenter=true&multiline=true&width=435&lines=I%E2%80%99m+the+one+who+gripped+you+tight)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=4D4D4D&center=true&vCenter=true&multiline=true&width=435&lines=and+raised+you+from+perdition.)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/1czi4q.png)
 
