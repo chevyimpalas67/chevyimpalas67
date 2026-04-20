@@ -13,6 +13,9 @@
 
 highly suspected OSDD sys. iwcare always!
 
+
+<details>
+  <summary>MY SAMMY PLUSH!</summary><h5 align="center">
 <img src="https://file.garden/ZYOUGMFgsgr29YrG/IMG_3618.jpeg" width="120">
 
 --^ 
