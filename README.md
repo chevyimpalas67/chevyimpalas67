@@ -2,7 +2,7 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=chevyimpalas67&color=000000&label=★&style=plastic)  ![](https://files.catbox.moe/8djxwl.gif)
+![](https://files.catbox.moe/sptwfx.gif) ![](https://komarev.com/ghpvc/?username=chevyimpalas67&color=000000&label=★&style=plastic)  ![](https://files.catbox.moe/jl2bcl.gif)
 <br />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=4D4D4D&center=true&vCenter=true&multiline=true&width=435&lines=I%E2%80%99m+the+one+who+gripped+you+tight)](https://git.io/typing-svg)
