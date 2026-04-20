@@ -19,7 +19,7 @@ highly suspected OSDD sys. iwcare always!
 <br />
 
 <details>
-  <summary>MY SAMMY PLUSH!</summary><h5 align="center">
+  <summary>sammy bebeh</summary><h5 align="center">
 <img src="https://file.garden/ZYOUGMFgsgr29YrG/IMG_3618.jpeg" width="120"> 
 
 this is my sammy plushie. he's on a taxidermied pigeon named gilbert. be very nice and say hi to sammy in my atabook
