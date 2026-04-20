@@ -2,14 +2,14 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=chevyimpalas67&color=fdf1b7&label=★&style=plastic)  ![](https://files.catbox.moe/8djxwl.gif)
+![](https://komarev.com/ghpvc/?username=chevyimpalas67&color=000000&label=★&style=plastic)  ![](https://files.catbox.moe/8djxwl.gif)
 <br />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&pause=1000&color=FDF1B7&background=F276B718&center=true&vCenter=true&width=435&lines=%22+That's+pretty+nice+timing+%2C+Cas+.+%22)](https://git.io/typing-svg)
 
-![](https://files.catbox.moe/rzv5lj.png)
+![](https://files.catbox.moe/1czi4q.png)
 
-[rentry](https://rentry.co/chevyimpalas67) x [prns.cc](https://pronouns.cc/@chevyimpalas67) x [atabook](https://deanwinchester.atabook.org/) x [guns.lol](https://guns.lol/chevyimpalas67)
+*[rentry](https://rentry.co/chevyimpalas67) x [prns.cc](https://pronouns.cc/@chevyimpalas67) x [atabook](https://deanwinchester.atabook.org/) x [guns.lol](https://guns.lol/chevyimpalas67)*
 
 highly suspected OSDD sys. iwcare always!
 
