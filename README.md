@@ -11,4 +11,10 @@
 
 [rentry](https://rentry.co/chevyimpalas67) x [prns.cc](https://pronouns.cc/@chevyimpalas67) x [atabook](https://deanwinchester.atabook.org/) x [guns.lol](https://guns.lol/chevyimpalas67)
 
-highly suspected OSDD sys. iwcare always !
+highly suspected OSDD sys. iwcare always!
+
+<img src="https://file.garden/ZYOUGMFgsgr29YrG/IMG_3618.jpeg" width="120">
+
+--^ 
+
+this is my sammy plushie. he's on a taxidermied pidgeon named gilbert. be very nice.
