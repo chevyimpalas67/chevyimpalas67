@@ -12,7 +12,7 @@
 
 *[rentry](https://rentry.co/chevyimpalas67) x [prns.cc](https://pronouns.cc/@chevyimpalas67) x [atabook](https://deanwinchester.atabook.org/) x [guns.lol](https://guns.lol/chevyimpalas67) x [dni list](https://github.com/chevyimpalas67/dni/blob/main/README.md)*
 
-highly suspected OSDD sys. iwcare always!
+highly suspected P-DID sys. iwcare always!
 
 <br />
 <br />
