@@ -20,7 +20,5 @@ highly suspected P-DID sys. iwcare always!
 <br />
 
 <details>
-  <summary>sammy bebeh</summary><h5 align="center">
-<img src="https://file.garden/ZYOUGMFgsgr29YrG/IMG_3618.jpeg" width="120"> 
-
-this is my sammy plushie. he's on a taxidermied pigeon named gilbert. be very nice and say hi to sammy in my atabook
+  <summary>extra</summary><h5 align="center">
+i am in INSANELY niche fandoms. please bmf if you know what H.E Double Hockey Sticks (1999) is, or Boy Meets World (1993) is. I LITERALLY BEG OF YLU #jeric4life
