@@ -20,5 +20,5 @@ highly suspected P-DID sys. (3+ yrs of research and going!) iwcare always!
 <br />
 
 <details>
-  <summary>extra</summary><h5 align="center">
-i am in INSANELY niche fandoms. please bmf if you know what H.E Double Hockey Sticks (1999) is, or Boy Meets World (1993) is. I LITERALLY BEG OF YLU #jeric4life
+  <summary>please read if you are a friend of mine!</summary><h5 align="center">
+i do realize that i have been quite offline of pony town recently, and i understand if u are wondering where i am LOL. i am trying my best to get back onto pony town! my mental health has been BAD! i have been fronting on and off but i will recover quite soon (i hope). if you catch me online please feel free to check in or hang out with me for a little! <3 - dean/elijah
