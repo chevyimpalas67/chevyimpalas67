@@ -21,4 +21,4 @@ highly suspected P-DID sys. (3+ yrs of research and going!) iwcare always!
 
 <details>
   <summary>please read if you are a friend of mine!</summary><h5 align="center">
-i do realize that i have been quite offline of pony town recently, and i understand if u are wondering where i am LOL. i am trying my best to get back onto pony town! my mental health has been getting much better, i am just very busy with theatre (i'm crutchie in newsies!) and [artfight.](https://artfight.net/~ruddleside if you catch me online please feel free to check in or hang out with me for a little! <3 - dean/elijah
+i do realize that i have been quite offline of pony town recently, and i understand if u are wondering where i am LOL. i am trying my best to get back onto pony town! my mental health has been getting much better, i am just very busy with theatre (i'm crutchie in newsies!) and [artfight.](https://artfight.net/~ruddleside) if you catch me online please feel free to check in or hang out with me for a little! <3 - dean/elijah
