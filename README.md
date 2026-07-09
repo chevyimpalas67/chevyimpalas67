@@ -2,13 +2,13 @@
 <br />
 <br />
 
-![](https://files.catbox.moe/sptwfx.gif) ![](https://komarev.com/ghpvc/?username=chevyimpalas67&color=000000&label=★&style=plastic)  ![](https://files.catbox.moe/jl2bcl.gif)
+![](https://files.catbox.moe/sptwfx.gif) ![](https://komarev.com/ghpvc/?username=chevyimpalas67&color=26090A&label=★&style=plastic)  ![](https://files.catbox.moe/jl2bcl.gif)
 <br />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=4D4D4D&center=true&vCenter=true&multiline=true&width=435&lines=I%E2%80%99m+the+one+who+gripped+you+tight)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=4D4D4D&center=true&vCenter=true&multiline=true&width=435&lines=and+raised+you+from+perdition.)](https://git.io/typing-svg)
 
-![](https://files.catbox.moe/7vkusu.png)
+![](https://files.catbox.moe/f14ur7.jpeg)
 
 *[rentry](https://rentry.co/chevyimpalas67) x [prns.cc](https://pronouns.cc/@chevyimpalas67) x [atabook](https://deanwinchester.atabook.org/) x [guns.lol](https://guns.lol/chevyimpalas67) x [dni list](https://github.com/chevyimpalas67/dni/blob/main/README.md)*
 
