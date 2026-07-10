@@ -5,8 +5,7 @@
 ![](https://files.catbox.moe/sptwfx.gif) ![](https://komarev.com/ghpvc/?username=chevyimpalas67&color=26090A&label=★&style=plastic)  ![](https://files.catbox.moe/jl2bcl.gif)
 <br />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=4D4D4D&center=true&vCenter=true&multiline=true&width=435&lines=I%E2%80%99m+the+one+who+gripped+you+tight)](https://git.io/typing-svg)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=4D4D4D&center=true&vCenter=true&multiline=true&width=435&lines=and+raised+you+from+perdition.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=MonteCarlo&size=30&pause=1000&color=832119&width=435&lines=%22+You+can't+ask+me+to+do+this+Cas%2C+not+this.+%22)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/f14ur7.jpeg)
 
@@ -19,6 +18,4 @@ highly suspected P-DID sys. (3+ yrs of research and going!) iwcare always!
 <br />
 <br />
 
-<details>
-  <summary>please read if you are a friend of mine!</summary><h5 align="center">
-i do realize that i have been quite offline of pony town recently, and i understand if u are wondering where i am LOL. i am trying my best to get back onto pony town! my mental health has been getting much better, i am just very busy with theatre (i'm crutchie in newsies!) and artfight. (https://artfight.net/~ruddleside) if you catch me online please feel free to check in or hang out with me for a little! <3 - dean/elijah
+
